@@ -19,6 +19,7 @@ Press q to quit
 
 Have fun!
 
+[Watch in action](https://plus.google.com/u/0/116071098827301487282/posts/2NrnsczFDK5)
 
           X   X X         |
         X   X     X X   X |
